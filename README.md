@@ -1,5 +1,5 @@
 Thank to the creators of the The Coronavirus app which is added behind the hyperlink COVID statistics
-Visit the link to no more
+Visit the link to know more
 ( https://www.buymeacoffee.com/tGJba8O .)
 
 
